@@ -1,1 +1,0 @@
-Modificación Daniel Sánchez.
